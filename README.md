@@ -3,7 +3,7 @@
 - 🌱 I’m currently an undergraduate student at ODU, in pursuit of a Bachelor's in Game Deisgn with a double minor in Computer Science and Cybersecurity.
 - 💞️ I’m seeking internship opportuities in the game design field for summer 2024.
 - 📫 I can be contacted via discord or through email at ajl2023srhs@gmail.com
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: He/They
 - ⚡ Fun fact: I lived in Hawaii for 4 years!
 
 <!---
